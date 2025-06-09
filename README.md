@@ -2,6 +2,7 @@
 - 🌱 I’m currently exploring
 - 📫 You can reach me through gmail: onyxefforts@gmail.com
 - 😄 Pronouns: Onyx
+- hehe
 
 
 <!---
